@@ -1,0 +1,5 @@
+- 👋 Hi, I’m Capo
+- 👀 I’m interested in Cyber Security, Web Design, Graphic Design.
+- 🌱 I’m currently learning penetration testing.
+- 💞️ I’m looking to collaborate on nothing.
+- 📫 How to reach me Twitter, Instagram, Reddit.
